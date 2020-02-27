@@ -1,1 +1,1 @@
-# tudy1.github.io
+# tudorsblog.com
